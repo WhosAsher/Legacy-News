@@ -1,1 +1,1 @@
-Get ready to suit up—Chapter 2 Season 4 of Legacy Fortnite has officially launched, bringing a powerful Marvel crossover and major gameplay updates. This season, the battle royale experience is infused with legendary mythic powers. Players can now wield iconic abilities like Thor’s Hammer, Iron Man’s Repulsors, and Wolverine’s Claws, adding an epic new twist to every fight.
+Welcome to Legacy - Season 9! We have spent a lot of time on this project, and our team thanks you for playing.
