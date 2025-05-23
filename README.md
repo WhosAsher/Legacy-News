@@ -1,1 +1,3 @@
-Hello, and welcome to the release of Legacy Chapter 2 Season 4! We have put a lot of time and effort into this so we hope you enjoy!! Thank you to all of our modders for helping bring the best experience possible!
+Legacy  - Chapter 2 Season 4 is Here!
+
+Get ready to suit up—Chapter 2 Season 4 of Legacy Fortnite has officially launched, bringing a powerful Marvel crossover and major gameplay updates. This season, the battle royale experience is infused with legendary mythic powers. Players can now wield iconic abilities like Thor’s Hammer, Iron Man’s Repulsors, and Wolverine’s Claws, adding an epic new twist to every fight.
