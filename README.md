@@ -1,1 +1,1 @@
-# Legacy-News
+Hello, and welcome to the release of Legacy Chapter 2 Season 4! We have put a lot of time and effort into this so we hope you enjoy!! Thank you to all of our modders for helping bring the best experience possible!
